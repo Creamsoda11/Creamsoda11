@@ -1,9 +1,7 @@
 
-Wip black forest cookie theme ouhh👀👀👀👀👀👀
+Wip 
 --------
-<img width="1400" height="34" alt="tumblr_fe0287c9f30cd9058c60eca0d4a77e8a_6b6b7f62_400" src="https://github.com/user-attachments/assets/34a4e10b-49f5-4f6c-b3b2-10371c31ae68" />
-
-
+<img width="1400" height="163" alt="tumblr_6d8eae4aa662abfb85f92a49f3b5f9c9_80b8362e_400" src="https://github.com/user-attachments/assets/f0166e40-4244-4ba7-b98e-0de5ecba5b31" />
 
 <img width="1400" height="34" alt="tumblr_110eed1ddf09ca69c118367d5cf7d4db_adee2f52_400" src="https://github.com/user-attachments/assets/c502453d-0788-418b-9cd5-aca6e3bbc0f3" />
 
