@@ -1,7 +1,10 @@
 
 Wip 
 --------
-<img width="1400" height="163" alt="tumblr_6d8eae4aa662abfb85f92a49f3b5f9c9_80b8362e_400" src="https://github.com/user-attachments/assets/f0166e40-4244-4ba7-b98e-0de5ecba5b31" />
+
+<img width="150" height="18" alt="tumblr_9181b07c30d82489ff01ad76ccf7a711_414759ec_250" src="https://github.com/user-attachments/assets/78f021f9-b5c0-4f48-b709-ca2bb057466e" />
+
+<img width="184" height="18" alt="tumblr_e25ab27cb4008bcfca582254291c219f_6eb8c7d8_100" src="https://github.com/user-attachments/assets/6bd79848-f7a5-4db8-abfb-371734ce1c59" />
 
 <img width="1400" height="34" alt="tumblr_110eed1ddf09ca69c118367d5cf7d4db_adee2f52_400" src="https://github.com/user-attachments/assets/c502453d-0788-418b-9cd5-aca6e3bbc0f3" />
 
